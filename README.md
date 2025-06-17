@@ -1,5 +1,5 @@
 # WP-Engine-Coupon
-## WP Engine Coupon Code 2025 | 50% Off + 4 Months Free
+## WP Engine Coupon Code 2025 | 33% Off + 4 Months Free
 
 Looking to save big on premium WordPress hosting?
 
